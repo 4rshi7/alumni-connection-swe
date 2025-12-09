@@ -1,0 +1,1 @@
+A website that servers as a commonplace for all mca graduates from NITK, where they can connect with alumnis and current students know more about them and post and apply for jobs that are made available to them by the alumnis
